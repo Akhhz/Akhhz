@@ -1,0 +1,1 @@
+Wockhardt Promethazine Codeine Cough Syrup; Medicines are sometimes prescribed for purposes other than those listed in a Medication Guide. Do not use wockhardt w/ codeine cough syrupfor a condition for which it was not prescribed. Do not give wockhardt w/ codeine cough syrup to other people, even if they have the same symptoms that you have. It may harm them.
